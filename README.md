@@ -1,1 +1,0 @@
-# doctorvoice-terms-of-service
